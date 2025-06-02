@@ -61,8 +61,8 @@ I'm also passionate about working in the software field, building useful tools, 
 
 ## 📫 Contact
 
-- 📧 Email: yazan@example.com
-- 🌐 LinkedIn: [linkedin.com/in/yazan](https://linkedin.com/in/yazan)
+- 📧 Email: YaznAlnokri1.618@gmail.com 
+- 🌐 LinkedIn: www.linkedin.com/in/yazan-al-nokri
 - 🇦🇪 Location: UAE | Open to study & collaboration opportunities
 
 ---
